@@ -13,4 +13,4 @@
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=J0K3R-Joel&theme=neon&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
 
 # ✍️ Quote
-> If you are willing to do what most won't, you'll life like most can't
+> If you're willing to do what most won't, you'll live like most can't
