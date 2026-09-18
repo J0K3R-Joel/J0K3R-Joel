@@ -1,5 +1,5 @@
 # 💫 About Me:
-👾I love to code<br>🛠️I love to do projects<br>💡Focus, discipline and curiosity of curiosity of knowledge keep me going <br>🔋Energy addict <br><br>  
+👾I love to code<br>🛠️I love to do projects<br>💡Focus, discipline and curiosity of knowledge keep me going <br>🔋Energy addict <br><br>  
 
 
 ## 🌐 Socials:
